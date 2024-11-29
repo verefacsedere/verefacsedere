@@ -3,7 +3,7 @@ vmbv- 👋 Hi, I’m @verefacsedere
 - 🌱 I’m currently learning ...33
 - 💞️ I’m looking to collaborate on ...576
 - 📫 How to reach me ...
-- 😄 Pronouns: ...5
+- 😄 Pronouns: ...5fhg
 - ⚡ Fun fact: ...vmb
 
 <!---
