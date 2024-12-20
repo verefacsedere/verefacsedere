@@ -2,7 +2,7 @@ htvmbv- 👋 Hi, I’m @verefacsedere
 - 👀 I’m interested in ...ad
 - 🌱 I’m currently learning ...33
 - 💞️ I’m looking to collaborate on ...576ht
-- 📫 How to reach me ...
+- 📫 How to reach me ...5
 - 😄 Pronouns: ...5fhgwerwre
 - ⚡ Fun fact: ...vmb254425xcv
 8
