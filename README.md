@@ -1,7 +1,7 @@
 59615296fjmjjbcxkiyrtrt455456484848htvmbv- 👋 Hi, I’m @verefacsedere54sdfmhj
 - 👀 I’m interested in ...adjytjccxcx
 - 🌱 I’m currently learning ...33n,mjyt
-- 💞️ I’m looking to collaborate on ...576ht8484sdfghjfgbfg94655126fvdxzczzgnfnhjhjhmjjyjytjty
+- 💞️ I’m looking to collaborate on ...576ht8484sdfghjfgbfg94655126fvdxzczzgnfnhjhjhmjjyjytjty8484
 - 📫 How to reach me ...66966bm99699cvbfgbbfggfdsfererhgwtebcvcbvfsdsdrfasaadrgdfffthgghgnhngnghtrrererxvxvcujytn
 - 😄 Pronouns: ...5fhgwerwresdf6263dsfgfbxcvvcxasdadsgfdsdsddsdssdmjggjgjghghhgnhtrhtrdhbvvbvvcuyy
 - ⚡ Fun fact: ...vmb254425xcv345xcv5115cvbxcvedwfbddfbdsssswqqw
